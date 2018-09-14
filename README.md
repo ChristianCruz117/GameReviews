@@ -12,4 +12,4 @@ basically go around collecting collectibles while hunting down villians to take 
 All the game was missing was amazing in the title. I loved the gameplay, how the characters are introduced, and how it is action packed. 
 The game draws you in mainly because of the story and has you wondering "Why are these things happening?" Also, the tasks the game 
 gives you are challenging and entertaining. What I really loved about this game was the webbing and how the graphics looked. He swings
-fluidly from one part of the city to another. 
+fluidly from one part of the city to another. Its truly the best spider man game they have ever made.
