@@ -9,7 +9,5 @@ gameplay gives you a lot of options on what to do and fighting many enemies. As 
 building, your mission as a comic book crime fighter include fighting bosses, thugs, drug lords, and a gang called the demons. You can 
 basically go around collecting collectibles while hunting down villians to take them down. 
 # Final Thoughts
-All the game was missing was amazing in the title. I loved the gameplay, how the characters are introduced, and how it is action packed. 
-The game draws you in mainly because of the story and has you wondering "Why are these things happening?" Also, the tasks the game 
-gives you are challenging and entertaining. What I really loved about this game was the webbing and how the graphics looked. He swings
-fluidly from one part of the city to another. Its truly the best spider man game they have ever made.
+All the game was missing was amazing in the title. The game draws you in from the beginning mainly because of the story and has you wondering during gameplay "Why are these things happening?" I loved the gameplay, how the characters are introduced, and how it is action packed.
+The game draws you in mainly because of the story and has you wondering "Why are these things happening?" The costumes and gadgets not only come in a wide variety, but they also have different perks that can help Spider-Man in certain situations.To add to that, the designs for the costumes were very accurate for the different universes they came from. Also, the tasks the game gives you are challenging and entertaining. They help you move around the city better and take down enemies more efficiently. What I really loved about this game was the webbing and how the graphics looked. He swings fluidly from one part of the city to another that is just flawless. Its truly the best Spider-Man game they have ever made.
